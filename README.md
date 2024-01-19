@@ -4,7 +4,7 @@ Welcome to the coding carnival hosted by the one and only Mohammed Mohsin Khan, 
 
 I'm on the lookout for top-tier talent to join my digital dream team in the United States. If you breathe code, speak data, or lead projects like a superhero, I want YOU! 🦸‍♂️👩‍💻
 
-Connect with me on LinkedIn to peek into my world: Mohammed Mohsin Khan 🌐
+Connect with me on LinkedIn to peek into my world: Mohammed Mohsin Khan on LinkedIn. 🌐
 
 For a backstage pass to your next career adventure, drop me a line at mohsink861@gmail.com. 📩 Let's turn your skills into code poetry or project symphonies together! 🚀💻
 
